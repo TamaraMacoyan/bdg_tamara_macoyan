@@ -1,0 +1,1 @@
+# bdg_tamara_macoyan
